@@ -1,1 +1,1 @@
-KAPALI
+AKTİF
